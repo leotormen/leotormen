@@ -8,7 +8,7 @@
 - 🍣🥢minha comida favorita é sushi
 - 📅tenho 15 anos
 - 👦meu nome é Leonardo Tormen
-
+- sou colorado🔴
 
 
 ![](https://media.tenor.com/kSFJhORZMTAAAAAC/cristiano-ronaldo-real-madrid.gif)
